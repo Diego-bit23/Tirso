@@ -1,2 +1,0 @@
-# Tirso
-PROYECTO DISEÑO
